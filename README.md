@@ -1,1 +1,1 @@
-# .github
+# 🤠 Howdy, Partner!
